@@ -1,0 +1,33 @@
+# Happy Govardhan Puja
+
+A donkey and a dog smiling together over a fence
+
+Coco, may your home glow with warmth, your days with laughter, and your heart with the kind of happiness that never runs out of light.
+
+from rk_kumawat09
+
+A little prince made of autumn leaves holding a rose at sunset
+
+कल कोई आएगा, तो शायद तुम हमें भूल जाओगे, नई यादों में खोकर, पुराने लम्हे मिटा जाओगे। अभी तो शायरी अधूरी है, उसे अधूरी ही रहने दो, अभी तो बहुत से राज़ बाकी हैं, राज़ को राज़ ही रहने दो। ❤️
+
+Coco with a gold medal and a trophy
+
+Class 10 boards are coming, and I already know you'll bring home 90% without breaking a sweat. Best of luck, Coco!
+
+Cartoon: she pouts with folded arms while he teases her headphones
+
+You, pretending to be annoyed while I tease you. We both know there's a smile hiding in there.
+
+Cartoon: she walks off holding his hand while he gets dragged along
+
+You, walking off at full speed while I'm still being dragged along.
+
+Cartoon: he offers her a purple flower
+
+And this is me with a peace offering. Truce?
+
+Coco smiling at night, hand behind her head
+
+Stay this cheerful, Coco.
+
+**Happy Govardhan Puja**rk_kumawat09
